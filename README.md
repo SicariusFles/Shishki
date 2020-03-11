@@ -1,2 +1,0 @@
-# Shishki
-Olololololololol
